@@ -8,3 +8,4 @@ Course is online and will be carried out on our *[YouTube chanel](https://www.yo
 You are welcome!
 You are welcome!
 You are welcome!
+You are welcome!
